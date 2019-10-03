@@ -1,1 +1,1 @@
-# kck_01
+Nowe repozytorium na zajęcia
